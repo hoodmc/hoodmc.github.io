@@ -1,2 +1,4 @@
 # hoodmc.github.io
-Join us on Minecraft by reading our README
+IP: Hoodmc.com
+IP: play.hoodmc.com
+IP: play.evine49.com
